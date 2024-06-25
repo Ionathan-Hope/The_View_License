@@ -1,6 +1,6 @@
-What? You were expecting a random joke here?
-
-# Liscence
+# The View License
+Copyleft (c) 2024 ennghallie.
+All rights reversed.
 
 **WE WHO WILL TOUCH THE SKY WITH YOU** ARE GUARANTEED TO HYPERTEXT MARKDOWN WORDS, So that all People can Write to the Philes.
 
