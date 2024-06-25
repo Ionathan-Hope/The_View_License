@@ -1,5 +1,5 @@
 # The View License
-Copyleft (ɔ) _year_ _organization_
+Copyleft (ɔ) _year_ _organization_.
 All rights reversed.
 
 **WE WHO WILL TOUCH THE SKY WITH YOU** ARE GUARANTEED TO HYPERTEXT MARKDOWN WORDS, So that all People can Write to the Philes.
